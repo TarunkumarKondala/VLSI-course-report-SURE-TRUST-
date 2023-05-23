@@ -1,1 +1,0 @@
-# VLSI-course-report-SURE-TRUST-
